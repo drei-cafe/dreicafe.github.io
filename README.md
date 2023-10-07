@@ -1,2 +1,2 @@
-# dreicafe.github.io
-drei cafe
+# drei cafe
+drei for the stay
